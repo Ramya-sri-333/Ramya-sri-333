@@ -1,1 +1,1 @@
-- My key academic projects--
+- My key projects--
